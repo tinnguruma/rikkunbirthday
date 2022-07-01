@@ -1,2 +1,2 @@
 # rikuyabirthday
-https://tinnguruma.github.io/rikkynbirthday/
+https://tinnguruma.github.io/rikkunbirthday/
