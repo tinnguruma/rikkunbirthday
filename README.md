@@ -1,2 +1,2 @@
-# rikuyabirthday
+# rikkunbirthday
 https://tinnguruma.github.io/rikkunbirthday/
